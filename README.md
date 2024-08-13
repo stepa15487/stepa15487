@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @stepa15487
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning: English
+- 📫 How to reach me: with discord
